@@ -1,1 +1,1 @@
-# PracticalTest02
+Piciu Laurentiu-Gheorghe, grupa 342C1
